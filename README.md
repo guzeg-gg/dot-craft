@@ -1,3 +1,5 @@
+I may come back to this project, but as for now, it will stay archived.
+
 
 > Open this page at [https://guzeggamerguy.github.io/dot-craft/](https://guzeggamerguy.github.io/dot-craft/)
 
